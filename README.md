@@ -19,7 +19,7 @@
 
 ## 📫 Connect with Me
 - **GitHub:** https://github.com/chimabindu50-design
-- **LinkedIn:** https://linkedin.com/in/chitikena-venkata-himabindu
+- **LinkedIn:** www.linkedin.com/in/chitikena-venkata-himabindu-1ba8b131a
 - **Email: ** chimabindu50@gmail.com
 
 ✨ *"Code. Learn. Build. Grow."*
